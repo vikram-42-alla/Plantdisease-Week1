@@ -1,1 +1,0 @@
-# Plantdisease-Week1
